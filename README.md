@@ -5,7 +5,7 @@ Email ID: soumyajitnath233@gmail.com
 
 Region: Eastern Region
 
-NOC Guide: Siddhartha Kumar, Deputy General Manager
+NOC Guide: [Siddhartha Kumar](https://www.linkedin.com/in/siddharth-kumar-90744912b/?originalSubdomain=in), Deputy General Manager
 
 NOC Location: Old Koilaghat Office, B.B.D. Bagh, Kolkata - 700001
 
